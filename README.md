@@ -1,2 +1,2 @@
 # Happy_birthday-Zubiya
- My friend's girlfriend birthday. I was paid for it.
+My girlfriend's birthday present created by my friend [Parjanya-Kumar-Arya](https://github.com/Parjanya-Kumar-Arya-github/)
